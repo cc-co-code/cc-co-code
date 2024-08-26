@@ -12,7 +12,7 @@ Fun fact: I do love motorcycles but I don't have a licence to ride.
 ### 📫 How you can reach me:
 you can reach me via [LinkedIn](https://www.linkedin.com/in/cecilia-bartlewski-328b94309/) 
 
-
+![alt text](icons-2.jpg)
 
 
 <!---
