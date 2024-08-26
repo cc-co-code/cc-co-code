@@ -9,7 +9,7 @@ I like animals, feminist literature and motorbikes.
 I’m currently learning how to code and I couldn't be happier about it.
 
 Fun fact: I do love motorcycles but I don't have a licence to ride.
-### 📫 How you can rech me:
+### 📫 How you can reach me:
 you can reach me via [LinkedIn](https://www.linkedin.com/in/cecilia-bartlewski-328b94309/) 
 
 
