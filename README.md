@@ -1,8 +1,8 @@
 # 👋 Hi, I’m Cecilia
 Pronouns: she/her
+## About me
 
-
-I am from Stuttgart, Germany and I studied nutritinal science. 
+I am from Stuttgart, Germany and I studied nutritinal science in Halle, Saxony. I have a broad spectrum of interests which is why I decided to expand my knowledge and dive into the techworld. 
 ## 👀 Interests:
 I like animals, feminist literature and motorbikes.
 
